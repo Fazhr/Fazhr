@@ -1,7 +1,7 @@
 ## Hi there 👋
 
-
-**Fazhr/Fazhr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Helo, mai nem is fa
+a yem faiv yers od
 
 Here are some ideas to get you started:
 
