@@ -5,11 +5,11 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on h
-- 🌱 I’m currently learning h
-- 👯 I’m looking to collaborate on h
-- 🤔 I’m looking for help with h
-- 💬 Ask me about h
-- 📫 How to reach me: h
-- 😄 Pronouns: h
-- ⚡ Fun fact: h
+- 🔭 I’m currently working on milife
+- 🌱 I’m currently learning milife
+- 👯 I’m looking to collaborate on miwaif
+- 🤔 I’m looking for help with fesnuk
+- 💬 Ask me about ap yh
+- 📫 How to reach me: jumpa tengah
+- 😄 Pronouns: manu/sia
+- ⚡ Fun fact: mau tau ajah
